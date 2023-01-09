@@ -14,4 +14,4 @@ To weigh the attractiveness of each article, we curve some data because some day
 By no means before 2023, the articles with **Pandemic** tag are the most popular ones and the residents are glad to share them. However, the offical account has to find its alternative right now. Or there will be a shortage of the content.
 The **Information** tag isn't attractive though it is a must. Maybe it can be improved in the aspect of expression.
 Few residents reckon that the **Science Popularization** tag is interesting but those who value them are more likely to share the **Science Popularization** articles with others.
-When it comes to the **Welfare** tag articles, that's what residents want to see. The account had better find more ways to promote their propagation. Or just put them in the striking place. 
+When it comes to the **Welfare** tag articles, that's what residents want to see. The account had better find more ways to promote their propagation. Or just put them in the striking place.
